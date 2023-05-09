@@ -6,4 +6,4 @@ André Alves
 Fábio Coelho
 
 TEMA:
-(escrever qual o tema aqui e uma descriçao do que vamos mostrar no site)
+Tipos de treinos para cada parte do corpo.
